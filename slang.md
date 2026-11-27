@@ -1,0 +1,70 @@
+- I don't buy it 信你个鬼
+- I can't take it any more
+- I know you mean well
+- I see your point
+- I can't wait to see you
+- I call the shots / It's not my call
+- I'll give it a shot 试试无妨
+- I can't imagine why 想不明白
+- I don't feel like talking 没心情说话
+- I'm speechless 无话可说
+- I'm allergic to ...
+- I'm moving on 翻篇了
+- I'm over you 我放下你了 I'm over it 我已经不在乎了
+- I'm not myself 不在状态
+- I'm an open book 坦率
+- I couldn't care less 我根本不在乎
+- You look familiar
+- You make me sick
+- You are nothing to me
+- You are not the boss of me
+- You are way out of line 过分
+- You be you 勇敢做自己 Just be yourself / Be who you are
+- You rock
+- You tricked me
+- You set me up? 你算计我？
+- You deserve better
+- You make me want to be a better man
+- My word is my bond / You have my word
+- My lips are sealed 守口如瓶
+- My door is always open 随时欢迎
+- We're on a clock 时间紧迫
+- Everybody wins 皆大欢喜
+- Come off it 别胡扯了
+- Fine by me 我无所谓
+- Practice makes perfect 熟能生巧
+- Easier said than done
+- Need a ride?
+- Over my dead body 想都别想
+- Stop whining
+- Watch your mouth
+- Break the ice 打破僵局
+- Name you price 开价
+- Sorry to bother you
+- Work it out 解决它
+- Take my advice
+- Lay low 保持低调
+- Save your breath 省省力气
+- Out of the question 面谈
+- Go for it 加油/努力争取
+- Let's not be hasty
+- Let me put it this 这么说吧/直说吧
+- Let me ask you something
+- Don't be so hard on yourself 别难为自己
+- Don't make me
+- Don't rush me
+- There is no going back
+- That makes sense 说得通
+- Better later than never
+- Nothing comes from nothing 天下没有免费的午餐
+- It's now or never 机不可失时不再来
+- It's a lot to process
+- It's what it is
+- What's done is done.
+- What's on your mind?
+- Who do you think you are?
+- Dog-eat-dog world 弱肉强食的世界
+- Great minds think alike 英雄所见略同
+- Not another word
+- One step at a time
+- Same old same old
