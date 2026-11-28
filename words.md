@@ -1,3 +1,5 @@
+<!-- cspell:disable -->
+
 - 元音：ɪ ʊ ʌ ɒ ə ɜː iː uː ɔː ɑː æ eɪ aɪ ɔɪ əʊ aʊ ɪə eə ʊə
 - 辅音：θ ð ʃ ʒ tʃ dʒ ŋ
 - antonym /'æntənim/
